@@ -11,6 +11,8 @@ Junior Front End Developer and sport enthusiast
     💬 Ask me about anything :)
 
     💞️ Fun fact: I am soccer and gym lover
+    
+    
 
 
 
